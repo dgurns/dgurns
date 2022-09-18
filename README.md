@@ -1,4 +1,4 @@
-### Hi, I'm Dan 👋
+### Hi, I'm Dan
 
 - 🏡 From Rhinebeck, NY in the Hudson Valley
 - 🏙 Lived in NYC and was co-founder and CEO of Concert Window
